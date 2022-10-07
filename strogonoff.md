@@ -1,3 +1,0 @@
-﻿
-
-`	`#Strogonoff de Frango
